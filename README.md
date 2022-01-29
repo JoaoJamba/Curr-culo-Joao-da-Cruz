@@ -1,1 +1,1 @@
-# Curr-culo-Joao-da-Cruz
+# Curriculo-Joao-da-Cruz
